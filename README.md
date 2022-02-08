@@ -1,0 +1,1 @@
+# prvy-projekt-v-gite
